@@ -35,7 +35,7 @@ Answer the following questions:
 - What seems like the most likely cause of the engagement dip?
 - What, if anything, should the company do in response?
 
-——————————————————————————————————————————————————————————
+——————————————————————————————————————————————————————
 
 # Preparation and Prioritization 
 
